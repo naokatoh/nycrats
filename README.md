@@ -1,1 +1,1 @@
-# NYC rats are everywhere. But restaurants are the only one to be blamed? 
+# NYC rats are everywhere. But are restaurants the only ones to be blamed? 
